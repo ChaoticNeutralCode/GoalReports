@@ -11,8 +11,8 @@ Beyond a basic tracking throughout the day, I will complete weekly “report car
 ### 3 Hours / Week of Physical Exercise with No Specific Schedule
 There is a ton of research and opinion out there linking physical health with mental health. I want to tap that by committing a number of hours each week to increasing my physical health. This amount of time will start low, a few hours, but will grow over time. I choose not to make a specific schedule for this because when I force myself to do things at specific times I tend to see lower success, rather than just having a todo to complete at my leisure.
 
-### 1 Hour / Day Reading
-Reading is not only a fundamental part of learning and growth, but also a great way to stay mentally acute. In the past I have lacked any particular drive to read on a regular basis, preferring video and activity based learning. While this can be good, it lacks the deep understanding you can get by reading and interpreting for yourself. For this goal there are no specific topics I want to target, just time each day reading content from any source, and in any form.
+### 5 Hours / Week Reading a Book
+Reading is not only a fundamental part of learning and growth, but also a great way to stay mentally acute. In the past I have lacked any particular drive to read on a regular basis, preferring video and activity based learning. This lacks the deep understanding you can get by reading and interpreting for yourself. For this goal there are no specific topics I want to target, just time reading a book.
 
 ### 1 Night / Week With Friends
 Building and maintaining social relationships is not only extremely important from a health perspective, but also helps hone social skill-sets that are useful for a wide variety of situations. It doesn’t really matter what I am doing, so long as it’s at least voice chat.
